@@ -1,1 +1,1 @@
-https://retrosexyal.github.io/rsschool-cv/
+https://retrosexyal.github.io/rsschool-cv/cv
